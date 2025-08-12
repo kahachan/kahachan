@@ -13,7 +13,7 @@
 
 ## Hobi
 
-🎮 Saya juga menikmati bermain game sebagai kegiatan di luar dunia koding.
+🎮 Saya juga menikmati bermain game.
 
 ---
 
